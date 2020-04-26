@@ -2,10 +2,7 @@
 
 1.  **注册**
 
-    ![8e0a029cef80804cbcef61593189f43](https://t1.picb.cc/uploads/2020/04/26/kLTH5t.png){width="1.7569444444444444in"
-    height="2.9402777777777778in"}![a2b5a3e46ee3245b0b055bda18f148c](media/image2.png){width="1.7375in"
-    height="2.951388888888889in"}![49a7c23124fa8a6bd169dea187c1165](media/image3.png){width="2.107638888888889in"
-    height="2.9541666666666666in"}
+    ![8e0a029cef80804cbcef61593189f43](https://t1.picb.cc/uploads/2020/04/26/kLTH5t.png)![a2b5a3e46ee3245b0b055bda18f148c](https://t1.picb.cc/uploads/2020/04/26/kLTrSF.png)![49a7c23124fa8a6bd169dea187c1165](https://t1.picb.cc/uploads/2020/04/26/kLT8yr.png)
 
     ==============================================================================
 
